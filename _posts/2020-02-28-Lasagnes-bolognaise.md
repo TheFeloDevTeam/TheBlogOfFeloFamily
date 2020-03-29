@@ -16,20 +16,17 @@ subtitle: Recette de Jean-Pierre Koffe
 
 ## Préparation
 
-a Éplucher la carotte, l'ognon et le céleri, les laver, les tronçonner en petits morceaux ou les passer au mixeur.
-
-Chauffer dans une cocotte à fond épais l'huile et01e ebeurel y laisser suer les legumes à couvert, 5 bonnes minutes.
+1. Éplucher la carotte, l'ognon et le céleri, les laver, les tronçonner en petits morceaux ou les passer au mixeur.
+1. Chauffer dans une cocotte à fond épais l'huile et le beurre et y laisser suer les legumes à couvert, 5 bonnes minutes.
 
 Ajouter le faire 
 
 réduire un peu avant d'incorporer le bouillon délayé Ive] le ' 
 
 concentré de tomates. saler et poivrer. cuire à découvert 1 heure. 
-Remuer quelquefois avec une cuillère en bois, tout le liquide doit 
-s'évaporer, la sauce bolognaise, onctueuse, sera liée naturellement. 
+Remuer quelquefois avec une cuillère en bois, tout le liquide doit s'évaporer, la sauce bolognaise, onctueuse, sera liée naturellement.
 
-Dans le fond d'un plat à gratin mettre 2 cuillères à soupe de 
-coulis de tomates. Poser une première couche de feuilles de - 
+Dans le fond d'un plat à gratin mettre 2 cuillères à soupe de coulis de tomates. Poser une première couche de feuilles de - 
 
 Mélanger la sauce bolognaise avec ce qui reste du coulis de 
 Recouvrir d'une seconde couche d6eO pâte. 
